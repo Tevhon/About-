@@ -2,8 +2,7 @@
 - 👀 I’m interested in Website Development and Designing 
 - 🌱 I’m currently learning Advance Java Script
 - 💞️Devji Karanwal
--   Yeh Dil Maange More 🇮🇳
--   First cry #8 july |📍Chandigarh
+-   Yeh Dil Maange More 🇮🇳|📍Chandigarh
 -   It is better to fight and fall down again!!! than living without hope Be a beast for ur best
 - 📫 Reach me on instagram user id @devji_karanwal ...
 
